@@ -1,2 +1,2 @@
-# impostor-website
-Find the Impostor - Website - Coming Soon!
+# Find the Impostor
+Contact & Support: impostor.the.app@gmail.com
